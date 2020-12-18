@@ -1,1 +1,0 @@
-# rotsenVal.github.io
